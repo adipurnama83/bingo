@@ -1,0 +1,3 @@
+# bingo
+
+Pass: ink1
