@@ -1,3 +1,3 @@
 # bingo
 
-Pass: ink1
+Pass: https://semawur.com/vA68P1jhNHa
